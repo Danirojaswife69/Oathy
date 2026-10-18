@@ -2,6 +2,7 @@ You can call me by OathStar, Oath, Oathy (preferably), DANIROJASWIFE69, or any n
 MY SOCIALS
 
 Oc x canon strawpage: https://theloserlesbians.straw.page/
+Yumeship TikTok: https://www.tiktok.com/@danirojaswife69?_r=1&_t=ZT-9AfdmUT99yQ
 
 
 
