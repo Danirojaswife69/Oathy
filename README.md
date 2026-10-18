@@ -3,6 +3,7 @@ MY SOCIALS
 
 Oc x canon strawpage: https://theloserlesbians.straw.page/
 Yumeship TikTok: https://www.tiktok.com/@danirojaswife69?_r=1&_t=ZT-9AfdmUT99yQ
+My Ao3: https://archiveofourown.org/users/DaniRojasWife69
 
 
 
