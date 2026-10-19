@@ -14,13 +14,13 @@ My Character Hub: https://characterhub.com/profile/DaniRojasWife69
 
 ATABOOK: https://oathys.atabook.org/
 
-and im on pony town a lot i always have two exclamation points in my names and one of my accounts linked on my pony!!
+and im on pony town a lot i always have two exclamation points in my names and one of my accounts linked on my pony!! and im always open to chat on there!! just come up to up to me!
 
 
 GO FOLLOW THIS AWESOME PERSON TRUST https://characterhub.com/profile/SirBaloroth
 
 
-I’m a super gay kisser of girls and may have a bit of an obsession thehehe
+I’m a super gay kisser of girls and may have a bit of an obsession over Dani thehehe
 
 Pronouns: She/They
 
@@ -30,7 +30,7 @@ Gender: DEMIGIRL
 
 age: 17 ill be turning 18 on dec 11th
 
-Stuff I luv: FARCRY (mainly 6), Umamusume, Warrior cats, Red dead Redemption, Hamilton, ATLA, The Crow (Rip Brandon Lee), Starwars, Art, My ocs and tons of other things
+Stuff I luv: FARCRY (mainly 6), Resident Evil, Umamusume, Warrior cats, Red dead Redemption, Hamilton, ATLA, The Crow (Rip Brandon Lee), Starwars, Art, My ocs and tons of other things
 
 Music I love: Amigo the devil, The bridge city sinners, Harley Poe, Chevelle, System of a Down, Murder by death, Adrienne Lenker, Big thief, Muse, RadioHead, The front bottoms, McCafferty, Mitski, Yaelokre, Alestorm, Lana del Rey, A perfect circle, Tool, Puscifer, Alex g, Raury, American Murder song, Modest Mouse, Chiodos, isles and glaciers, my chemical romance, Pierce the veil, Panic! At the disco, Dance Gavin dance, and just a bunch more (I’m like a massive fan of music lol)
 
