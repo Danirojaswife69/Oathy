@@ -14,7 +14,7 @@ My Character Hub: https://characterhub.com/profile/DaniRojasWife69
 
 ATABOOK: https://oathys.atabook.org/
 
-and im on pony town a lot i always have two exclamation points in my names and one of my accounts linked on my pony!! and im always open to chat on there!! just come up to up to me!
+and im on pony town (safe server)  a lot i always have two exclamation points in my names and one of my accounts linked on my pony!! and im always open to chat on there!! just come up to up to me im pretty much always free to chat!!
 
 
 GO FOLLOW THIS AWESOME PERSON TRUST https://characterhub.com/profile/SirBaloroth
