@@ -36,7 +36,6 @@ Music I love: Amigo the devil, The bridge city sinners, Harley Poe, Chevelle, Sy
 
 I OWN TONS OF ANIMALS!! I have goats, cats, dogs, ducks, chickens, and blue death feigning beetles!!!
 
-
-
+i do have AUDHD and can sometime possible come off as rude or not fully understand something as so apologies in advance if i ever do that if so please tell me ^^
 
 
